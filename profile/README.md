@@ -1,4 +1,4 @@
-![Open Source at Microsoft](https://github.com/microsoft/.github/blob/main/images/open-at-microsoft.png) 
+![Projects by Crown](https://github.com/victorcodess/folio-v1/assets/84178696/a8879f99-90f4-4b2d-8ee9-7e58d60ef54a) 
 
 ## Get Involved
 
