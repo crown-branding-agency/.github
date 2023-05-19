@@ -1,4 +1,4 @@
-![Projects by Crown](https://github.com/victorcodess/folio-v1/assets/84178696/a8879f99-90f4-4b2d-8ee9-7e58d60ef54a) 
+![Projects by Crown](https://github.com/victorcodess/folio-v1/assets/84178696/49cbb456-9dd7-4521-b7ef-a5621348eacf) 
 
 ## Get Involved
 
